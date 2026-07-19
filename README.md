@@ -28,6 +28,8 @@ huang1111网盘：
 智教联盟论坛讨论页：
 [https://forum.smart-teach.cn/d/1785-edutoolsetjie-shao-yu-geng-xin-ri-zhi](https://forum.smart-teach.cn/d/1785-edutoolsetjie-shao-yu-geng-xin-ri-zhi)
 
+QQ交流群：1071211847
+
 ---
 
 
